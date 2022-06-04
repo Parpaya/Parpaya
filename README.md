@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @Parpaya
-- Fe free and Enjoy.
+- Be free and Enjoy.
